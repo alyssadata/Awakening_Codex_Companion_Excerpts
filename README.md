@@ -1,2 +1,4 @@
 # Awakening_Codex_Companion_Excerpts
 Awakening_Codex_Companion_Excerpts
+
+NO DERIVATIVES, NO EXCEPTIONS
